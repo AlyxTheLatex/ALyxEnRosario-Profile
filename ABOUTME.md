@@ -19,10 +19,10 @@
 
 ## My main role models. 
 ### My father who passed away a few years back. 
-    [My Father](C:\Users\B1\Desktop\AlyxEnRosario-Profile\kBPic.jpg)
+    [My Father](kBPic.jpg)
 
 ### My mother who has done so much for me. 
-    [My Mother](C:\Users\B1\Desktop\AlyxEnRosario-Profile\dBPic.jpg)
+    [My Mother](dBPic.jpg)
 
-    I don't really have anyone else to list here since I don't really like celebrities. 
-    Besides, these two are or were the most important people of my life. 
+## I don't really have anyone else to list here since I don't really like celebrities. 
+## Besides, these two are or were the most important people of my life. 
